@@ -12,3 +12,5 @@ if u have any question heir#7777 is my discord tag or dm me on twitter
 or if u dont wanna do all these things just invite my anti nuke (fear) which is 24/7 online (vps hosted)
 
 [fear invite link](https://discord.com/api/oauth2/authorize?client_id=821093463587815494&permissions=8&scope=bot)
+
+[support server](https://discord.gg/dEJRZkFjkc)
